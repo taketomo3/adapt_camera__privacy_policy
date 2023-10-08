@@ -1,0 +1,1 @@
+# adapt_camera__privacy_policy
